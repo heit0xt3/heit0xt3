@@ -5,7 +5,7 @@
 - 📫 Como entrar em contato comigo ( não pode)
 - 😄 Pronomes: ele/dele
 - ⚡ Curiosidade: a que ponto chegamos
-- ![](https://tenor.com/pt-BR/view/plink-nerd-cat-blink-big-eyes-gif-15286305703160120854)
+- ![](<div class="tenor-gif-embed" data-postid="15286305703160120854" data-share-method="host" data-aspect-ratio="1.0628" data-width="100%"><a href="https://tenor.com/view/plink-nerd-cat-blink-big-eyes-gif-15286305703160120854">Plink Nerd GIF</a>from <a href="https://tenor.com/search/plink-gifs">Plink GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
 
 
 
